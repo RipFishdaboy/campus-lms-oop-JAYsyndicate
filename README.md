@@ -1,1 +1,0 @@
-# campus-lms-oop-JAYsyndicate
